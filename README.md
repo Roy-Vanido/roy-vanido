@@ -7,7 +7,7 @@
 <br><p align="center"> $\color{#e17d12}{\text{" HEY LOSERS! WHAT'RE YOUU DOING HERE? "}}$
 <br><p align="center"> ![Visitors](https://api.visitorbadge.io/api/daily?path=https%3A%2F%2Fgithub.com%2Fhatzgng%2Fhatzgng%2Fedit%2Fmain%2FREADME.md&label=HATZ%20APPLICATIONS.&labelColor=%23e17d12&countColor=%23ffff88&style=plastic&labelStyle=upper)
 <br><p align="center"> $\color{#e17d12}{\text{judasㅤroy}}$ ㅤ(►__◄)ㅤ $\color{#7692ff}{\text{erinㅤcellㅤetcㅤᓚᘏᗢㅤ}}$
-<br><p align="center"> $\color{#e17d12}{\text{019ㅤyrs old}}$ ㅤo(TヘTo)ㅤ $\color{#7692ff}{\text{ㅤㅤagender , ㅤbisexual , ㅤqueerplationic}}$
+<br><p align="center"> $\color{#e17d12}{\text{019ㅤyrs old}}$ ㅤo(TヘTo)ㅤ $\color{#7692ff}{\text{agender , ㅤbisexual , ㅤqueerplationic}}$
 
 <br><p align="center"> <img width="220" height="220" alt="tumblr_cbf8223900f2aaa0e331cdde601a10a1_c38c517c_640" src="https://github.com/user-attachments/assets/7baf01b8-6820-48b6-8fbf-7d838ed680f6" />
 
