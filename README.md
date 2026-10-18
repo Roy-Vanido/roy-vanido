@@ -6,16 +6,16 @@
 
 <br><p align="center"> $\color{#e17d12}{\text{" HEY LOSERS! WHAT'RE YOUU DOING HERE? "}}$
 <br><p align="center"> ![Visitors](https://api.visitorbadge.io/api/daily?path=https%3A%2F%2Fgithub.com%2Fhatzgng%2Fhatzgng%2Fedit%2Fmain%2FREADME.md&label=HATZ%20APPLICATIONS.&labelColor=%23e17d12&countColor=%23ffff88&style=plastic&labelStyle=upper)
-<br><p align="center"> $\color{#e17d12}{\text{judasㅤroy}}$  ＜（＾－＾）＞ $\color{#7692ff}{\text{erinㅤcellㅤetcㅤᓚᘏᗢㅤ}}$
+<br><p align="center"> $\color{#e17d12}{\text{judasㅤroy}}$ $\color{#7692ff}{\text{erinㅤcellㅤetcㅤᓚᘏᗢㅤ}}$
 <br><p align="center"> $\color{#e17d12}{\text{019ㅤyrs old}}$
 $\color{#7692ff}{\text{ㅤㅤagender , ㅤbisexual , ㅤqueerplationic}}$
 
 <br><p align="center"> <img width="220" height="220" alt="tumblr_cbf8223900f2aaa0e331cdde601a10a1_c38c517c_640" src="https://github.com/user-attachments/assets/7baf01b8-6820-48b6-8fbf-7d838ed680f6" />
 
-<br><p align="center"> $\color{#7692ff}{\text{ㅤ" W-Well, you could say that was Karma, Roy.. "}}$ $\color{#e17d12}{\text{"  SHUT UP ROBERT. "}}$
+<br><p align="center"> $\color{#7692ff}{\text{" W-Well, you could say that was Karma, Roy.. "}}$ $\color{#e17d12}{\text{"  SHUT UP ROBERT. "}}$
 <br><p align="center"> $\color{#ff0909}{\text{DNI ; Pro / Darkship , NSFW , Racism , "Ragebait" , Pedophilia , R@pe / S/A jokes , Endo "Systems" , ETC.}}$
 <br><p align="center"> $\color{#ff0909}{\text{IF MY FRIENDS ARE IN DRAMA , I DO NOT WANT TO BE ASSOCIATED WITH THEM.}}$
-<br><p align="center"> [SIGN MY ATA 4 A HAT](https://hatzgng.atabook.org/)
+<br><p align="center"> [SIGN MY ATA 4 A HAT](https://hatzgng.atabook.org/) [READ 4 MORE INFO](https://pronouns.cc/@celbyte)
 
 <br><p align="center"> <img width="100" height="100" alt="tumblr_dd6324241dfab885055eff976df2080d_f95f6f03_100" src="https://github.com/user-attachments/assets/0c3db116-8614-4c78-be94-e60f7ab0c9d2" />
 <img width="100" height="100" alt="tumblr_4d9664cc96d8fe1a256ede29a5250bc1_ff52dcb8_100" src="https://github.com/user-attachments/assets/627f241e-24e1-43f3-80d8-588f66f965d2" />
