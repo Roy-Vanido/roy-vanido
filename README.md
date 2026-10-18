@@ -2,6 +2,6 @@
 
 <br><p align="center"> ${\textsf{\color{#6699CC}*Freedom Isn't There For You, Is It ?*}}$
 
-<br><p align="center"> ${\textsf{\color{#6699CC}*Always Just a Step away for you, Yet. You can't Reach .*}}$
+<br><p align="center"> ${\textsf{\color{#87CEEB}*Always Just a Step away for you, Yet. You can't Reach .*}}$
 
 <br><p align="center"> <img width="540" height="35" alt="tumblr_e42dff4c6bf8402cb14cd0ed32fadd49_f6806c6b_540" src="https://github.com/user-attachments/assets/6a16fffd-a055-4054-a2a6-bafc1d39885b" />
