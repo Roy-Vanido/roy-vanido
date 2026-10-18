@@ -6,7 +6,7 @@
 
 <br><p align="center"> $\color{#e17d12}{\text{" HEY LOSERS! WHAT'RE YOUU DOING HERE? "}}$
 <br><p align="center"> ![Visitors](https://api.visitorbadge.io/api/daily?path=https%3A%2F%2Fgithub.com%2Fhatzgng%2Fhatzgng%2Fedit%2Fmain%2FREADME.md&label=HATZ%20APPLICATIONS.&labelColor=%23e17d12&countColor=%23ffff88&style=plastic&labelStyle=upper)
-<br><p align="center"> $\color{#e17d12}{\text{judasㅤroy}}$ $\color{#7692ff}{\text{erinㅤcellㅤetcㅤᓚᘏᗢㅤ}}$
+<br><p align="center"> $\color{#e17d12}{\text{judasㅤroy}}$ ㅤ(►__◄)ㅤ $\color{#7692ff}{\text{erinㅤcellㅤetcㅤᓚᘏᗢㅤ}}$
 <br><p align="center"> $\color{#e17d12}{\text{019ㅤyrs old}}$
 $\color{#7692ff}{\text{ㅤㅤagender , ㅤbisexual , ㅤqueerplationic}}$
 
