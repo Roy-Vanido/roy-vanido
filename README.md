@@ -15,7 +15,7 @@
 <br><p align="center"> $\color{#e17d12}{\text{Usually Found at}}$ $\color{#7692ff}{\text{Cafe ,}}$ $\color{#7692ff}{\text{Docks ,}}$ $\color{#e17d12}{\text{or}}$ $\color{#7692ff}{\text{Spawn.}}$
 <br><p align="center"> $\color{#ff0909}{\text{DNI ; Pro / Darkship , NSFW , Racism , "Ragebait" , Pedophilia , R@pe / S/A jokes , Endo "Systems" , ETC.}}$
 <br><p align="center"> $\color{#ff0909}{\text{IF MY FRIENDS ARE IN DRAMA , I DO NOT WANT TO BE ASSOCIATED WITH THEM.}}$
-<br><p align="center"> [SIGN ATA 4 A HAT](https://hatzgng.atabook.org/) [PRNS . CC](https://pronouns.cc/@celbyte) [STRAWPAGE WIP](https://hatzgng.straw.page/)
+<br><p align="center"> [SIGN ATA 4 A HAT](https://hatzgng.atabook.org/) [PRNS . CC](https://pronouns.cc/@celbyte) [STRAWPAGE](https://hatzgng.straw.page/)
 
 <br><p align="center"> <img width="100" height="100" alt="tumblr_dd6324241dfab885055eff976df2080d_f95f6f03_100" src="https://github.com/user-attachments/assets/0c3db116-8614-4c78-be94-e60f7ab0c9d2" />
 <img width="100" height="100" alt="tumblr_4d9664cc96d8fe1a256ede29a5250bc1_ff52dcb8_100" src="https://github.com/user-attachments/assets/627f241e-24e1-43f3-80d8-588f66f965d2" />
