@@ -12,7 +12,7 @@
 <br><p align="center"> <img width="220" height="220" alt="tumblr_cbf8223900f2aaa0e331cdde601a10a1_c38c517c_640" src="https://github.com/user-attachments/assets/7baf01b8-6820-48b6-8fbf-7d838ed680f6" />
 
 <br><p align="center"> $\color{#7692ff}{\text{" W-Well, you could say that was Karma, Roy.. "}}$ $\color{#e17d12}{\text{"  SHUT UP ROBERT. "}}$
-<br><p align="center"> $\color{#e17d12}{\text{Usually Found at}}$ $\color{#7692ff}{\text{Cafe ,}}$ $\color{#7692ff}{\text{Docks ,}}$ $\color{#e17d12}{\text{or}}$ $\color{#7692ff}{\text{Spawn.}}$
+<br><p align="center"> $\color{#e17d12}{\text{Usually Found at}}$ $\color{#7692ff}{\text{Cafe}}$ $\color{#e17d12}{\text{,}}$ $\color{#7692ff}{\text{Docks}}$ $\color{#e17d12}{\text{,}}$ $\color{#e17d12}{\text{or}}$ $\color{#7692ff}{\text{Spawn}}$ $\color{#e17d12}{\text{.}}$
 <br><p align="center"> $\color{#ff0909}{\text{DNI ; Pro / Darkship , NSFW , Racism , "Ragebait" , Pedophilia , R@pe / S/A jokes , Endo "Systems" , ETC.}}$
 <br><p align="center"> $\color{#ff0909}{\text{IF MY FRIENDS ARE IN DRAMA , I DO NOT WANT TO BE ASSOCIATED WITH THEM.}}$
 <br><p align="center"> [SIGN ATA 4 A HAT](https://hatzgng.atabook.org/) [PRNS . CC](https://pronouns.cc/@celbyte) [STRAWPAGE](https://hatzgng.straw.page/)
