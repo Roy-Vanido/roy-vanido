@@ -9,9 +9,9 @@
 <br><p align="center"> $\color{#e17d12}{\text{judasㅤroy}}$ ㅤ(►__◄)ㅤ $\color{#7692ff}{\text{erinㅤcellㅤetcㅤᓚᘏᗢㅤ}}$
 <br><p align="center"> $\color{#e17d12}{\text{019ㅤyrs old}}$ ㅤo(TヘTo)ㅤ $\color{#7692ff}{\text{agender , ㅤbisexual , ㅤqueerplationic}}$
 
-<br><p align="center"> <img width="220" height="220" alt="tumblr_cbf8223900f2aaa0e331cdde601a10a1_c38c517c_640" src="https://github.com/user-attachments/assets/7baf01b8-6820-48b6-8fbf-7d838ed680f6" />
+<br><p align="center"> <img width="190" height="190" alt="tumblr_d747fdc6a60fef148054d8c33c016556_81bd33d7_640" src="https://github.com/user-attachments/assets/380475f9-3018-4e25-b58b-3e6b51c8649a" />
 
-<br><p align="center"> $\color{#7692ff}{\text{" W-Well, you could say that was Karma, Roy.. "}}$ $\color{#e17d12}{\text{"  SHUT UP ROBERT. "}}$
+<br><p align="center"> $\color{#e17d12}{\text{" What do you mean it's wrong .. ?! "}}$
 <br><p align="center"> $\color{#e17d12}{\text{Usually Found at}}$ $\color{#7692ff}{\text{Cafe}}$ $\color{#e17d12}{\text{,}}$ $\color{#7692ff}{\text{Docks}}$ $\color{#e17d12}{\text{,}}$ $\color{#e17d12}{\text{or}}$ $\color{#7692ff}{\text{Spawn}}$ $\color{#e17d12}{\text{.}}$
 <br><p align="center"> $\color{#ff0909}{\text{DNI ; Pro / Darkship , NSFW , Racism , "Ragebait" , Pedophilia , R@pe / S/A jokes , Endo "Systems" , ETC.}}$
 <br><p align="center"> $\color{#ff0909}{\text{IF MY FRIENDS ARE IN DRAMA , I DO NOT WANT TO BE ASSOCIATED WITH THEM.}}$
