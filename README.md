@@ -6,7 +6,7 @@
 
 <br><p align="center"> $\color{#e17d12}{\text{" HEY LOSERS! WHAT'RE YOUU DOING HERE? "}}$
 <br><p align="center"> ![Visitors](https://api.visitorbadge.io/api/daily?path=https%3A%2F%2Fgithub.com%2Fhatzgng%2Fhatzgng&label=HATZ%20APPLICANTS%20!!&labelColor=%23e17d12&countColor=%23ffff88&style=plastic&labelStyle=upper)
-<br><p align="center"> $\color{#e17d12}{\text{judasㅤroy}}$ ㅤ(►__◄)ㅤ $\color{#7692ff}{\text{erinㅤcellㅤetcㅤᓚᘏᗢㅤ}}$
+<br><p align="center"> $\color{#e17d12}{\text{royㅤreynold}}$ ㅤ(►__◄)ㅤ $\color{#7692ff}{\text{erinㅤjudeㅤetcㅤᓚᘏᗢㅤ}}$
 <br><p align="center"> $\color{#e17d12}{\text{019ㅤyrs old}}$ ㅤo(TヘTo)ㅤ $\color{#7692ff}{\text{agender , ㅤbisexual , ㅤqueerplationic}}$
 
 <br><p align="center"> <img width="190" height="190" alt="tumblr_d747fdc6a60fef148054d8c33c016556_81bd33d7_640" src="https://github.com/user-attachments/assets/380475f9-3018-4e25-b58b-3e6b51c8649a" />
