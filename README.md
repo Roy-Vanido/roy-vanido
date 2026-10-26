@@ -5,7 +5,7 @@
 <img width="99" height="56" alt="tumblr_51f1c6c0bc83141a63e41ffb53a6ce22_000a65c6_100" src="https://github.com/user-attachments/assets/cf0794ff-cdbf-4b46-bae7-1174f74bfb10" />
 
 <br><p align="center"> $\color{#e17d12}{\text{" HEY LOSERS! WHAT'RE YOUU DOING HERE? "}}$
-<br><p align="center"> ![Visitors](https://api.visitorbadge.io/api/daily?path=https%3A%2F%2Fgithub.com%2Fhatzgng%2Fhatzgng&label=HATZ%20APPLICANTS%20!!&labelColor=%23e17d12&countColor=%23ffff88&style=plastic&labelStyle=upper)
+<br><p align="center"> ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fhatzgng%2Fhatzgng&label=GANG%20APPLICANTZ%20!!&labelColor=%23e17d12&countColor=%23ffff88&style=plastic&labelStyle=upper)
 <br><p align="center"> $\color{#e17d12}{\text{royㅤreynold}}$ ㅤ(►__◄)ㅤ $\color{#7692ff}{\text{erinㅤjudeㅤetcㅤᓚᘏᗢㅤ}}$
 <br><p align="center"> $\color{#e17d12}{\text{019ㅤyrs old}}$ ㅤo(TヘTo)ㅤ $\color{#7692ff}{\text{agender , ㅤbisexual , ㅤqueerplationic}}$
 
