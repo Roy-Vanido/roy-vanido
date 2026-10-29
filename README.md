@@ -1,4 +1,4 @@
-<br><p align="center"> <img width="540" height="35" alt="tumblr_0f470bd18d3ddadd34bc93c4f550007d_735025ad_540" src="https://github.com/user-attachments/assets/88bcff27-9de8-4d23-aeea-656276562e39" />
+<br><p align="center"> <img width="1280" height="103" alt="tumblr_26e577f026ce1cf9350394e65c26807e_e9e66c81_1280" src="https://github.com/user-attachments/assets/b5c95a23-ea77-401b-bdfd-e4c4a86b6ba6" />
 
 <br><p align="center"> <img width="99" height="56" alt="tumblr_f33bd9ccb0aba435c42031f50e1ce717_286e54f3_100" src="https://github.com/user-attachments/assets/92104e23-6f2a-4619-8fdb-7d7790967d31" />
 <img width="99" height="56" alt="tumblr_eeafcab4faf64495a6fc64bc6894baa5_0dbf7a1d_100" src="https://github.com/user-attachments/assets/a52fdabb-0fd0-4360-af5c-be0187b840ee" />
@@ -9,7 +9,7 @@
 <br><p align="center"> $\color{#e17d12}{\text{judasㅤroy}}$ ㅤ(►__◄)ㅤ $\color{#7692ff}{\text{reynoldㅤerinㅤetcㅤᓚᘏᗢㅤ}}$
 <br><p align="center"> $\color{#e17d12}{\text{019ㅤyrs old}}$ ㅤo(TヘTo)ㅤ $\color{#7692ff}{\text{agender , ㅤbisexual , ㅤqueerplationic}}$
 
-<br><p align="center"> <img width="190" height="190" alt="tumblr_d747fdc6a60fef148054d8c33c016556_81bd33d7_640" src="https://github.com/user-attachments/assets/380475f9-3018-4e25-b58b-3e6b51c8649a" />
+<br><p align="center"> <img width="200" height="200" alt="tumblr_72b6ec7d549553bb92fc98df63c73331_8604b17a_640" src="https://github.com/user-attachments/assets/794d4fcd-2468-4d12-8df4-263dd26f9f08" />
 
 <br><p align="center"> $\color{#e17d12}{\text{" WHAT DO YOU MEAN IT'S WRONG .. ?! "}}$
 <br><p align="center"> $\color{#e17d12}{\text{Usually Found at the}}$ $\color{#7692ff}{\text{Cafe}}$ $\color{#e17d12}{\text{,}}$ $\color{#e17d12}{\text{the}}$ $\color{#7692ff}{\text{Docks}}$ $\color{#e17d12}{\text{,}}$ $\color{#e17d12}{\text{or}}$ $\color{#e17d12}{\text{near / next to}}$ $\color{#7692ff}{\text{Spawn}}$ $\color{#e17d12}{\text{.}}$
@@ -22,4 +22,4 @@
 <img width="100" height="100" alt="tumblr_0f295658144016caa0768442c1f905ee_51cd5cad_100" src="https://github.com/user-attachments/assets/fd249f30-e0d8-44dc-bf61-0b233170edd8" />
 
 
-<br><p align="center"> <img width="540" height="35" alt="tumblr_e42dff4c6bf8402cb14cd0ed32fadd49_f6806c6b_540" src="https://github.com/user-attachments/assets/6a16fffd-a055-4054-a2a6-bafc1d39885b" />
+<br><p align="center"> <img width="2048" height="302" alt="tumblr_ef8ce11b9d349fcc6ac165ea8b3be4c8_0a721bc4_2048" src="https://github.com/user-attachments/assets/0d3f3208-eec9-42a0-a56e-e418c9e93ec5" />
