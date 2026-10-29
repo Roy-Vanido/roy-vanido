@@ -22,4 +22,4 @@
 <img width="100" height="100" alt="tumblr_0f295658144016caa0768442c1f905ee_51cd5cad_100" src="https://github.com/user-attachments/assets/fd249f30-e0d8-44dc-bf61-0b233170edd8" />
 
 
-<br><p align="center"> <img width="2048" height="302" alt="tumblr_ef8ce11b9d349fcc6ac165ea8b3be4c8_0a721bc4_2048" src="https://github.com/user-attachments/assets/0d3f3208-eec9-42a0-a56e-e418c9e93ec5" />
+<br><p align="center"> <img width="1280" height="103" alt="tumblr_26e577f026ce1cf9350394e65c26807e_e9e66c81_1280" src="https://github.com/user-attachments/assets/b5c95a23-ea77-401b-bdfd-e4c4a86b6ba6" />
