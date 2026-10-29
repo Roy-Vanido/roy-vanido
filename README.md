@@ -6,13 +6,13 @@
 
 <br><p align="center"> $\color{#e17d12}{\text{" HEY LOSERS! WHAT'RE YOUU DOING HERE? "}}$
 <br><p align="center"> ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fhatzgng%2Fhatzgng&label=GANG%20APPLICANTZ%20!!&labelColor=%23e17d12&countColor=%23ffff88&style=plastic&labelStyle=upper)
-<br><p align="center"> $\color{#e17d12}{\text{royㅤreynold}}$ ㅤ(►__◄)ㅤ $\color{#7692ff}{\text{erinㅤjudeㅤetcㅤᓚᘏᗢㅤ}}$
+<br><p align="center"> $\color{#e17d12}{\text{judasㅤroy}}$ ㅤ(►__◄)ㅤ $\color{#7692ff}{\text{reynoldㅤerinㅤetcㅤᓚᘏᗢㅤ}}$
 <br><p align="center"> $\color{#e17d12}{\text{019ㅤyrs old}}$ ㅤo(TヘTo)ㅤ $\color{#7692ff}{\text{agender , ㅤbisexual , ㅤqueerplationic}}$
 
 <br><p align="center"> <img width="190" height="190" alt="tumblr_d747fdc6a60fef148054d8c33c016556_81bd33d7_640" src="https://github.com/user-attachments/assets/380475f9-3018-4e25-b58b-3e6b51c8649a" />
 
-<br><p align="center"> $\color{#e17d12}{\text{" What do you mean it's wrong .. ?! "}}$
-<br><p align="center"> $\color{#e17d12}{\text{Usually Found at}}$ $\color{#7692ff}{\text{Cafe}}$ $\color{#e17d12}{\text{,}}$ $\color{#7692ff}{\text{Docks}}$ $\color{#e17d12}{\text{,}}$ $\color{#e17d12}{\text{or}}$ $\color{#7692ff}{\text{Spawn}}$ $\color{#e17d12}{\text{.}}$
+<br><p align="center"> $\color{#e17d12}{\text{" WHAT DO YOU MEAN IT'S WRONG .. ?! "}}$
+<br><p align="center"> $\color{#e17d12}{\text{Usually Found at the}}$ $\color{#7692ff}{\text{Cafe}}$ $\color{#e17d12}{\text{,}}$ $\color{#e17d12}{\text{the}}$ $\color{#7692ff}{\text{Docks}}$ $\color{#e17d12}{\text{,}}$ $\color{#e17d12}{\text{or}}$ $\color{#e17d12}{\text{near / next to}}$ $\color{#7692ff}{\text{Spawn}}$ $\color{#e17d12}{\text{.}}$
 <br><p align="center"> $\color{#ff0909}{\text{DNI ; Pro / Darkship , NSFW , Racism , "Ragebait" , Pedophilia , R@pe / S/A jokes , Endo "Systems" , ETC.}}$
 <br><p align="center"> $\color{#ff0909}{\text{IF MY FRIENDS ARE IN DRAMA , I DO NOT WANT TO BE ASSOCIATED WITH THEM.}}$
 <br><p align="center"> [SIGN ATA 4 A HAT](https://hatzgng.atabook.org/) [PRNS . CC](https://pronouns.cc/@hatzgng) [STRAWPAGE](https://hatzgng.straw.page/)
