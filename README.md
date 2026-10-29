@@ -4,15 +4,15 @@
 <img width="99" height="56" alt="tumblr_eeafcab4faf64495a6fc64bc6894baa5_0dbf7a1d_100" src="https://github.com/user-attachments/assets/a52fdabb-0fd0-4360-af5c-be0187b840ee" />
 <img width="99" height="56" alt="tumblr_51f1c6c0bc83141a63e41ffb53a6ce22_000a65c6_100" src="https://github.com/user-attachments/assets/cf0794ff-cdbf-4b46-bae7-1174f74bfb10" />
 
-<br><p align="center"> $\color{#e17d12}{\text{" HEY LOSERS! WHAT'RE YOUU DOING HERE? "}}$
+<br><p align="center"> $\color{#f07b0e}{\text{" HEY LOSERS! WHAT'RE YOUU DOING HERE? "}}$
 <br><p align="center"> ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fhatzgng%2Fhatzgng&label=GANG%20APPLICANTZ%20!!&labelColor=%23e17d12&countColor=%23ffff88&style=plastic&labelStyle=upper)
-<br><p align="center"> $\color{#e17d12}{\text{judasㅤroy}}$ ㅤ(►__◄)ㅤ $\color{#e14212}{\text{reynoldㅤerinㅤetcㅤᓚᘏᗢㅤ}}$
-<br><p align="center"> $\color{#e17d12}{\text{019ㅤyrs old}}$ ㅤo(TヘTo)ㅤ $\color{#e14212}{\text{agender , ㅤbisexual , ㅤqueerplationic}}$
+<br><p align="center"> $\color{#f07b0e}{\text{judasㅤroy}}$ ㅤ(►__◄)ㅤ $\color{#e14212}{\text{reynoldㅤerinㅤetcㅤᓚᘏᗢㅤ}}$
+<br><p align="center"> $\color{#f07b0e}{\text{019ㅤyrs old}}$ ㅤo(TヘTo)ㅤ $\color{#e14212}{\text{agender , ㅤbisexual , ㅤqueerplationic}}$
 
 <br><p align="center"> <img width="300" height="300" alt="tumblr_72b6ec7d549553bb92fc98df63c73331_8604b17a_640" src="https://github.com/user-attachments/assets/794d4fcd-2468-4d12-8df4-263dd26f9f08" />
 
-<br><p align="center"> $\color{#e17d12}{\text{" WHAT DO YOU MEAN IT'S WRONG .. ?! "}}$
-<br><p align="center"> $\color{#e17d12}{\text{Usually Found at}}$ $\color{#e14212}{\text{The Cafe}}$ $\color{#e17d12}{\text{,}}$ $\color{#e14212}{\text{The Docks}}$ $\color{#e17d12}{\text{,}}$ $\color{#e17d12}{\text{or near / next to}}$ $\color{#e14212}{\text{Spawn}}$ $\color{#e17d12}{\text{.}}$
+<br><p align="center"> $\color{#f07b0e}{\text{" WHAT DO YOU MEAN IT'S WRONG .. ?! "}}$
+<br><p align="center"> $\color{#f07b0e}{\text{Usually Found at}}$ $\color{#e14212}{\text{The Cafe}}$ $\color{#f07b0e}{\text{,}}$ $\color{#e14212}{\text{The Docks}}$ $\color{#f07b0e}{\text{,}}$ $\color{#f07b0e}{\text{or near / next to}}$ $\color{#e14212}{\text{Spawn}}$ $\color{#f07b0e}{\text{.}}$
 <br><p align="center"> $\color{#ff0909}{\text{DNI ; Pro / Darkship , NSFW , Racism , "Ragebait" , Pedophilia , R@pe / S/A jokes , Endo "Systems" , ETC.}}$
 <br><p align="center"> $\color{#ff0909}{\text{IF MY FRIENDS ARE IN DRAMA , I DO NOT WANT TO BE ASSOCIATED WITH THEM.}}$
 <br><p align="center"> [SIGN ATA 4 A HAT](https://hatzgng.atabook.org/) [PRNS . CC](https://pronouns.cc/@hatzgng) [STRAWPAGE](https://hatzgng.straw.page/)
