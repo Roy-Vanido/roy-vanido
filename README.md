@@ -13,8 +13,8 @@
 
 <br><p align="center"> $\color{#f07b0e}{\text{" WHAT DO YOU MEAN IT'S WRONG .. ?! "}}$
 <br><p align="center"> $\color{#f07b0e}{\text{Usually Found at}}$ $\color{#e14212}{\text{The Cafe}}$ $\color{#f07b0e}{\text{,}}$ $\color{#e14212}{\text{The Docks}}$ $\color{#f07b0e}{\text{,}}$ $\color{#f07b0e}{\text{or near / next to}}$ $\color{#e14212}{\text{Spawn}}$ $\color{#f07b0e}{\text{.}}$
-<br><p align="center"> $\color{#ffffff}{\text{DNI ; Pro / Darkship , NSFW , Racism , "Ragebait" , Pedophilia , R@pe / S/A jokes , Endo "Systems" , ETC.}}$
-<br><p align="center"> $\color{#ffffff}{\text{IF MY FRIENDS ARE IN DRAMA , I DO NOT ASSOCIATE WITH THEM AT ALL UNLESS STATED OTHERWISE.}}$
+<br><p align="center"> $\color{#ff0000}{\text{DNI ; Pro / Darkship , NSFW , Racism , "Ragebait" , Pedophilia , R@pe / S/A jokes , Endo "Systems" , ETC.}}$
+<br><p align="center"> $\color{#ff0000}{\text{IF MY FRIENDS ARE IN DRAMA , I DO NOT ASSOCIATE WITH THEM AT ALL UNLESS STATED OTHERWISE.}}$
 <br><p align="center"> [SIGN ATA 4 A HAT](https://hatzgng.atabook.org/) [PRNS . CC](https://pronouns.cc/@hatzgng) [STRAWPAGE](https://hatzgng.straw.page/)
 
 <br><p align="center"> <img width="100" height="100" alt="tumblr_dd6324241dfab885055eff976df2080d_f95f6f03_100" src="https://github.com/user-attachments/assets/0c3db116-8614-4c78-be94-e60f7ab0c9d2" />
