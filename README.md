@@ -13,7 +13,7 @@
 
 <br><p align="center"> $\color{#f07b0e}{\text{" WHAT DO YOU MEAN IT'S WRONG .. ?! "}}$
 
-<br><p align="center"> $\color{#f07b0e}{\text{Usually Found at}}$ $\color{#e14212}{\text{The Cafe}}$ $\color{#f07b0e}{\text{,}}$ $\color{#e14212}{\text{The Docks}}$ $\color{#f07b0e}{\text{,}}$ $\color{#f07b0e}{\text{or near / next to}}$ $\color{#e14212}{\text{Spawn}}$ $\color{#f07b0e}{\text{.}}$
+<br><p align="center"> $\color{#f07b0e}{\text{Usually Found at}}$ $\color{#e14212}{\text{The Cafe}}$ $\color{#f07b0e}{\text{,}}$ $\color{#e14212}{\text{The Docks}}$ $\color{#f07b0e}{\text{,}}$ $\color{#f07b0e}{\text{or near / next to}}$ $\color{#e14212}{\text{Spawn}}$ $\color{#f07b0e}{\text{.}}$ $\color{#f07b0e}{\text{Might mostly be on SS2.}}$
 <br><p align="center"> $\color{#ff0000}{\text{DNI ; Pro / Darkship , NSFW , Racism , "Ragebait" , Pedophilia , R@pe / S/A jokes , Endo "Systems" , ETC.}}$
 <br><p align="center"> $\color{#ff0000}{\text{IF MY FRIENDS ARE IN DRAMA , I DO NOT ASSOCIATE WITH THEM AT ALL UNLESS STATED OTHERWISE.}}$
 <br><p align="center"> [SIGN ATA 4 A HAT](https://hatzgng.atabook.org/) [GUNS . LOL](https://guns.lol/hatzgng) [PRNS . CC](https://pronouns.cc/@hatzgng) [STRAWPAGE](https://hatzgng.straw.page/)
