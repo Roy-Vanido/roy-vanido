@@ -12,6 +12,7 @@
 <br><p align="center"> <img width="200" height="200" alt="tumblr_72b6ec7d549553bb92fc98df63c73331_8604b17a_640" src="https://github.com/user-attachments/assets/794d4fcd-2468-4d12-8df4-263dd26f9f08" />
 
 <br><p align="center"> $\color{#f07b0e}{\text{" WHAT DO YOU MEAN IT'S WRONG .. ?! "}}$
+
 <br><p align="center"> $\color{#f07b0e}{\text{Usually Found at}}$ $\color{#e14212}{\text{The Cafe}}$ $\color{#f07b0e}{\text{,}}$ $\color{#e14212}{\text{The Docks}}$ $\color{#f07b0e}{\text{,}}$ $\color{#f07b0e}{\text{or near / next to}}$ $\color{#e14212}{\text{Spawn}}$ $\color{#f07b0e}{\text{.}}$
 <br><p align="center"> $\color{#ff0000}{\text{DNI ; Pro / Darkship , NSFW , Racism , "Ragebait" , Pedophilia , R@pe / S/A jokes , Endo "Systems" , ETC.}}$
 <br><p align="center"> $\color{#ff0000}{\text{IF MY FRIENDS ARE IN DRAMA , I DO NOT ASSOCIATE WITH THEM AT ALL UNLESS STATED OTHERWISE.}}$
