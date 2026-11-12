@@ -17,7 +17,7 @@
 <br><p align="center"> <img width="375" height="32" alt="Screenshot 2026-11-01 182726" src="https://github.com/user-attachments/assets/a4cc192a-3c45-44d2-8fe4-5fb7c4eee8e8" />
 <br><p align="center"> FROM [PONYTOWNS TREATS](https://github.com/Ponytowns-treats).
 
-<br><p align="center"> $\color{#ff0000}{\text{DNI ; Pro / Darkship , NSFW , Racism , "Ragebait" , Pedophilia , R@pe / S/A jokes , Endo "Systems" , ETC.}}$
+<br><p align="center"> $\color{#ff0000}{\text{DNI ; Pro / Darkship , NSFW , Racism , "Ragebait" , Pedophilia , R@pe / S/A jokes , Endo "Systems" , TWS , FFR , ETC.}}$
 <br><p align="center"> $\color{#ff0000}{\text{IF MY FRIENDS ARE IN DRAMA , I DO NOT ASSOCIATE WITH THEM AT ALL UNLESS STATED OTHERWISE.}}$
 <br><p align="center"> [SIGN ATA 4 A HAT](https://hatzgng.atabook.org/) [GUNS . LOL](https://guns.lol/hatzgng) [PRNS . CC](https://pronouns.cc/@hatzgng) [STRAWPAGE](https://hatzgng.straw.page/)
 
